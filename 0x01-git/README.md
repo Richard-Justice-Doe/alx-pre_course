@@ -1,2 +1,1 @@
-Im a beginner 
-please me 
+unless God help
